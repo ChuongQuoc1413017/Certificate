@@ -1,3 +1,3 @@
 # Certificate
 
-From many sources.
+Selective certifications from many sources.
